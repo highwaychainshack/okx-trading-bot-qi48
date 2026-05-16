@@ -1,4 +1,4 @@
-# 
+# ultimate Automation Script for okx trading bot | risk-management + scalping offers the most advanced okx trading bot, with risk-management and scalping. Ideal for professional
 
 
 
